@@ -1,2 +1,2 @@
 # kontak
-Kontal Desa Sambong
+Kontak Desa Sendangharjo
